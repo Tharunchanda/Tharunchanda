@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tharunchanda
 - 👀 I’m interested in Coding
-- 🌱 I’m currently learning Core
+- 🌱 I’m currently studing at IIT Mandi
 - 💞️ I’m looking to collaborate in my 3rd year
 - 📫 To reach me just mail to b23121@students.iitmandi.ac.in
 - 😄 Pronouns: He/Him
