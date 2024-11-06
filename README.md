@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @Tharunchanda
+- My LinkedIn profile https://www.linkedin.com/in/chandatharun
 - 👀 I’m interested in Coding
 - 🌱 I’m currently studing at IIT Mandi CSE brach
 - 💞️ I’m looking to collaborate in my 3rd year
